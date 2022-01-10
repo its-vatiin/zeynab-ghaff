@@ -1,0 +1,8 @@
+- 👋 Hey guys, I’m @zeynab-ghaff
+- 👀 I’m interested in Nano technology, biology and Camputers.
+- 🌱 I’m currently learning phyton, c#, c++ and basic.
+- 💞️ I’m looking to collaborate on a student work!
+- 📫 you can reach me on twitter with this ID: @_vatiin_
+- on instagram with this ID: @zeynab.ghaff
+- & on telegram with this ID: @_miigh_
+- GOODLUCK:)))
